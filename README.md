@@ -2,8 +2,10 @@
 
 dni: people under 12 years old (unless I wanted to get to know you beforehand and you were introduced by my friend) 
 
-<img width="900" height="800" alt="image" src="https://github.com/user-attachments/assets/66854e9b-fe22-4c67-ba70-35ddec71abc2" />
 ôi nox béo như con heo nái 
+<img width="900" height="800" alt="image" src="https://github.com/user-attachments/assets/66854e9b-fe22-4c67-ba70-35ddec71abc2" />
+<img width="100" height="274" alt="image" src="https://github.com/user-attachments/assets/0f7abb79-a315-4832-b324-ffbccde14d42" /> huhi yesks ốm như mắm kho 
+
 
 
 
