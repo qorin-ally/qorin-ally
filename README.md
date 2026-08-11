@@ -2,7 +2,9 @@
 
 dni: people under 12 years old (unless I wanted to get to know you beforehand and you were introduced by my friend) 
 
-<img width="1200" height="740" alt="image" src="https://github.com/user-attachments/assets/63fc7c87-95e6-4953-bab5-9d0e2c17924f" />
+
+I love my two friends, Nox and Yesks
+
 
 
  
